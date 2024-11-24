@@ -1,7 +1,8 @@
 # Competitor.Affiliate
 Affiliate marketer "Quote Wizzard" sites: 
 
-## Ad:
+# Ad:
+## QuoteWizard.com
 Home: https://www.youtube.com/@QuoteWizard-qr4jb
 
 Ad: [016_VSL_HOOK_1_BODY_1_EXT_2](https://youtu.be/jfEUXVz8H3A)
