@@ -13,3 +13,6 @@ Home: https://www.youtube.com/@Insurieyoutube-ke4wf
 
 Ad: [See How Much You Can Save](https://youtu.be/wHCKvsXv_b8)
 - Lander: https://insurie.com/g/?=patali&gclid=EAIaIQobChMIwPSol7r1iQMVweGLAR2ULDjWEAEYASAAEgJN5fD_BwE
+
+Ad: [See How Much You Can Save.](https://youtu.be/zY8eqSfWRkM)
+- Lander: https://insurie.com/g/?=patgreendt&gclid=EAIaIQobChMI5Ma_u9_1iQMVROSLAR3ntAJgEAEYASAAEgJ7z_D_BwE
